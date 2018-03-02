@@ -1,2 +1,6 @@
 # hello-dodo
-just another repository
+
+hi people!!
+
+i'am students i like reading books and playing game
+i 16 years old and i human
